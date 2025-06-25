@@ -26,8 +26,8 @@ Whether you're apologizing to a friend, a loved one, or anyone special — this 
 Hey! I'm **Samiullah**, a passionate web developer and student who enjoys building emotional, expressive websites like this — where code meets feelings.
 
 📬 Connect with me:  
-- 🌈 [Instagram – @anujbuilds](https://instagram.com/sami._.saiyan)    
-- 💼 [LinkedIn – anujchaudhary549](https://linkedin.com/in/samiullah-shakil-6294182b5)  
+- 🌈 [Instagram – @samiullah](https://instagram.com/sami._.saiyan)    
+- 💼 [LinkedIn – Samiullah](https://linkedin.com/in/samiullah-shakil-6294182b5)  
 
 ---
 
